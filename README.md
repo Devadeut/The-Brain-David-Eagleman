@@ -10,3 +10,6 @@ https://neosensory.com/science/
 
 The Brain with David Eagleman 4of6 How Do I Decide
 https://youtu.be/IvlhpTsoraA
+
+
+![(52) PBS The Brain with David Eagleman 4of6 How Do I Decide - YouTube - Google Chrome 24-04-2023 15_16_16](https://user-images.githubusercontent.com/95555641/233961767-6f599569-664d-4afb-8866-e9998651ff6d.png)
