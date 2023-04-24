@@ -7,3 +7,6 @@ https://eagleman.com/about-david-eagleman/
 
 Neosensory : Developed by neuroscientists, Neosensory builds non-invasive brain-machine interfaces to create new senses. Our research began with the idea that our experience of reality can go beyond our sensory limitations.
 https://neosensory.com/science/
+
+The Brain with David Eagleman 4of6 How Do I Decide
+https://youtu.be/IvlhpTsoraA
